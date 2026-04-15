@@ -12,7 +12,7 @@ A place for stories, echoes, and worlds that refuse to disappear — told primar
 Ruto-World is a place that keeps stories, echoes, and worlds that refuse to disappear.
 
 ## Worlds
-- [Ruto](/worlds/ruto/)
+- [Ruto]({{ site.baseurl }}/worlds/ruto/)
 
 ## About
-- [About Ruto-World](/about/)
+- [About Ruto-World]({{ site.baseurl }}/about/)
