@@ -9,11 +9,11 @@ permalink: /worlds/ruto/
 Welcome to the world of Ruto.
 
 ## Stories
-- [Người đi qua những vũ trụ gãy](/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru-gay/)
+- [Người đi qua những vũ trụ gãy]({{ site.baseurl }}/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru-gay/)
 
 ## Characters
-- [Dạ Trầm](/worlds/ruto/characters/da-tram/)
-- [Phong Nhi](/worlds/ruto/characters/phong-nhi/)
+- [Dạ Trầm]({{ site.baseurl }}/worlds/ruto/characters/da-tram/)
+- [Phong Nhi]({{ site.baseurl }}/worlds/ruto/characters/phong-nhi/)
 
 ## Lore
-- [Notes](/worlds/ruto/lore/notes/)
+- [Notes]({{ site.baseurl }}/worlds/ruto/lore/notes/)
