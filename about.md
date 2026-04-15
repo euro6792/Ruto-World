@@ -4,6 +4,9 @@ title: About
 permalink: /about/
 ---
 
+[← Quay về Ruto-World]({{ '/' | relative_url }})  
+[Đi tới thế giới Ruto]({{ '/worlds/ruto/' | relative_url }})
+
 # About Ruto-World
 
 Ruto-World is a place for stories, echoes, and worlds that refuse to disappear.
