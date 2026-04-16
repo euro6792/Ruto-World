@@ -510,14 +510,13 @@ Nhưng trong cái lạnh ấy, lần đầu tiên nàng không còn cảm thấy
 Nàng biết giờ đây chỉ còn một Dạ Trầm thật sự.
 
 Không phải người để lại lá thư.  
-Không hẳn cái bóng lạnh vừa rời khỏi.
+Cũng không hẳn là cái bóng lạnh vừa rời khỏi.
 
 Mà là linh hồn đã đi qua cả yêu thương lẫn đau đớn,  
 giờ đang ở đâu đó ngoài những lớp trời,  
 chờ ngày bản nhạc trái tim đủ đầy của mình được cất lên mà không còn bị xé đôi.
 
-Phong Nhi đặt tay lên ngực.
-
+Phong Nhi đặt tay lên ngực.  
 Khẽ nói, như nói với cả hai phần đã từng mang cùng một cái tên:
 
 “Em không chọn phần lạnh.  
@@ -530,6 +529,9 @@ Lần này không còn tiếng chuông bạc nữa.
 Nhưng trong sâu thẳm, nàng nghe rõ hơn bao giờ hết:
 
 một bản nhạc đang lành lại.
+
+-----
+Có những người ra đi không để bỏ lại lạnh giá. Họ đi, để một bản nhạc bắt đầu làm ấm cả một thế giới.
 
 ------------------------------------------------------------------------------------------------------------------
 ## Lối quay về
