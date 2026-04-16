@@ -49,6 +49,8 @@ Vì có những người không được nhớ bằng khuôn mặt.
 Họ được nhớ bằng một cơn gió đi ngang qua tim mình.  
 Và anh biết trong vũ trụ của chính anh, Phong Nhi đã không còn là Phong Nhi của ngày trước nữa, vũ trụ của anh đã bị reset và đã lệch đi một nhịp rất lớn.
 
+...
+
 Và thế là Dạ Trầm bắt đầu đi qua các nhánh vũ trụ.
 
 Mỗi khi bước qua một cánh cửa thời không, thế giới lại lật sang một trang khác.
