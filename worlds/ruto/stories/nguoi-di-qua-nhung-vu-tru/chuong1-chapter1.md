@@ -463,4 +463,4 @@ Anh đi qua chúng để tìm phiên bản cô đơn nhất của em, giữ lử
 - [Quay về Ruto-World]({{ "/" | relative_url }})
 ## Bạn hãy dừng lại và suy nghĩ - Tiếp tục đọc hay quay về ^^ - Tùy bạn chọn ❤
 ## Tiếp tục đọc
-- [Người đi qua những vũ trụ gãy - Chương 2]({{ "/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru/chuong2-chapter2/" | relative_url }})
+- [Người đi qua những vũ trụ gãy - Chương 2: Lá thư trong thành phố không còn mùa xuân]({{ "/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru/chuong2-chapter2/" | relative_url }})
