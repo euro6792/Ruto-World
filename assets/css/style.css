@@ -36,3 +36,16 @@ p {
 em {
   opacity: 0.9;
 }
+.top-nav {
+  margin-bottom: 24px;
+  font-size: 15px;
+}
+
+.top-nav a {
+  text-decoration: none;
+}
+
+.top-nav span {
+  margin: 0 8px;
+  opacity: 0.6;
+}
