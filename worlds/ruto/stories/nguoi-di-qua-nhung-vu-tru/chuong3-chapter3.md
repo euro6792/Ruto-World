@@ -539,3 +539,4 @@ Có những người ra đi không để bỏ lại lạnh giá. Họ đi, để
 ## Bạn hãy dừng lại và suy nghĩ - Tiếp tục đọc hay quay về ^^ - Tùy bạn chọn ❤
 ## Tiếp tục đọc
 - [Người đi qua những vũ trụ gãy - Chương 4: Bản nhạc vọng ngược]({{ "/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru/chuong4-chapter4/" | relative_url }})
+{% include comments.html %}
