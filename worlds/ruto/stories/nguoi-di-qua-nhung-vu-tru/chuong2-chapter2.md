@@ -396,3 +396,4 @@ Mà là một lối mở rất nhỏ trong linh hồn nàng — nơi cái lạnh
 ## Bạn hãy dừng lại và suy nghĩ - Tiếp tục đọc hay quay về ^^ - Tùy bạn chọn ❤
 ## Tiếp tục đọc
 - [Người đi qua những vũ trụ gãy - Chương 3: Người mang gương mặt anh, nhưng không còn hơi ấm]({{ "/worlds/ruto/stories/nguoi-di-qua-nhung-vu-tru/chuong3-chapter3/" | relative_url }})
+{% include comments.html %}
