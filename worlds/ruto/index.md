@@ -19,3 +19,5 @@ Hiện tại: Ruto World chỉ mới có một mẩu truyện chưa up hết, đ
 
 ## Lore
 - [Notes]({{ site.baseurl }}/worlds/ruto/lore/notes/)
+
+{% include comments.html %}
