@@ -2,7 +2,7 @@
 layout: story
 title: Suy nghĩ - Gia Đình
 subtitle: Family -  Nơi định nghĩa con người bạn
-permalink: /worlds/ruto/though/family01/
+permalink: /worlds/ruto/thoughs/family01/
 ---
 ## Gia Đình là:
 
