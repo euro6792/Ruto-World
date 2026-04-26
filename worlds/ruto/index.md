@@ -21,6 +21,6 @@ Hiện tại: Ruto World chỉ mới có một mẩu truyện, đó là "Ngườ
 - [Notes]({{ site.baseurl }}/worlds/ruto/lore/notes/)
 
 ## Thoughs
-- [Family - you choose yourself (Gia Đình - Nơi bạn chọn chính mình là ai!]({{ site.baseurl }}/worlds/ruto/thoughs/family01/)
+- [Family - you choose yourself (Gia Đình - Nơi bạn chọn chính mình là ai!)]({{ site.baseurl }}/worlds/ruto/thoughs/family01/)
 
 {% include comments.html %}
