@@ -18,7 +18,7 @@ Những buổi tối không còn kéo dài như trước. Nó ăn xong là vào 
 
 Những đêm đầu, anh vẫn ngồi đó, theo thói quen cũ. Anh nhắm mắt, nhớ lại cảm giác khi có con bé bên cạnh, khi mọi thứ dễ dàng hơn, khi thế giới kia đến mà không cần anh phải làm gì nhiều.
 
-Nhưng lần này, không có gì xảy ra. Không phải mất hẳn. Mà là… không còn đủ. Anh thử lại: nhắm mắt, nhớ, giữ - nhưng cảm giác chỉ đến một thoáng rất nhẹ, rồi tan đi. Anh mở mắt, không khó chịu, không thất vọng. Chỉ hiểu rằng — lần này, anh phải tự mình làm.
+Nhưng lần này, không có gì xảy ra. Không phải cảm giác đó biến mất, mà là nó không còn đủ rõ để anh giữ lại. Anh thử lại, nhắm mắt, nhớ, giữ, nhưng lần nào cũng chỉ chạm được một thoáng rất nhẹ rồi tan đi. Anh mở mắt, không khó chịu, không thất vọng. Chỉ hiểu rằng — lần này, anh phải tự mình làm.
 
 Anh không vội thử lại ngay trong những đêm sau đó.
 
@@ -62,7 +62,7 @@ Anh không ngạc nhiên. Không phải vì anh đã quen, mà vì nơi này kh�
 
 Chúng ở đó, trong cùng không gian, như thể đã luôn sống ở đó. Không ai nhìn anh theo cách xa lạ. Không ai hỏi anh là ai. Chỉ là… sự hiện diện của anh không khiến điều gì thay đổi. Anh nhìn chúng lâu hơn, và anh nhận ra: có gì đó… không giống - không phải là khác - là… không cố định.
 
-Một đứa mà anh nhớ đã từng nhỏ hơn… giờ lại lớn hơn một chút. Và cũng ngược lại, một đứa khác… lại không giống như lần trước anh thấy. Không có thứ tự, không có trước sau, nhưng anh nhìn thấy vẫn rất quen. Anh không hiểu! Nhưng anh không vội hỏi. Bởi vì anh đã thấy cô, cô đứng ở đó, không xa, không gần. Như lần đầu vậy. Anh bước tới, không cần suy nghĩ. Và cô nhìn anh, không ngạc nhiên. Chỉ là… biết anh sẽ quay lại.
+Một đứa mà anh nhớ đã từng nhỏ hơn… giờ lại lớn hơn một chút. Và cũng ngược lại, một đứa khác… lại không giống như lần trước anh thấy. Không có thứ tự, không có trước sau, nhưng tất cả vẫn mang một cảm giác quen thuộc. Anh không hiểu, nhưng cũng không vội hỏi. Bởi vì anh đã thấy cô, cô đứng ở đó, không xa, không gần. Như lần đầu vậy. Anh bước tới, không cần suy nghĩ. Và cô nhìn anh, không ngạc nhiên. Chỉ là… biết anh sẽ quay lại.
 
 “Anh đến rồi.” Cô nói. Anh dừng lại trước cô.
 
