@@ -54,6 +54,132 @@ Và rồi, một đêm, khi mọi thứ đã yên, khi con bé đã ngủ, anh n
 
 Và lần này — nó mở ra. Không mạnh, không rõ. Nhưng đủ để anh biết — anh đã quay lại được, theo cách của mình.
 
+Lần đầu tiên anh làm chủ khả năng đi sâu hoàn toàn khi ở một mình, mọi thứ không xảy ra đột ngột, không có cảm giác bị kéo, không có sự chuyển dịch rõ ràng. Chỉ là… khi anh nhận ra, anh đã đứng ở đó.
+
+Khung cảnh quen thuộc hiện ra: không phải chỉ là căn phòng khách - mà là cả căn nhà. Vẹn nguyên - không có gì bị thiếu.
+
+Anh không ngạc nhiên. Không phải vì anh đã quen, mà vì nơi này không tạo cảm giác xa lạ. Nó giống như một điều đã luôn tồn tại, chỉ là anh vừa quay lại đúng chỗ của nó. Và rồi anh thấy chúng, những đứa trẻ. Không phải một, không phải hai, mà nhiều hơn.
+
+Chúng ở đó, trong cùng không gian, như thể đã luôn sống ở đó. Không ai nhìn anh theo cách xa lạ. Không ai hỏi anh là ai. Chỉ là… sự hiện diện của anh không khiến điều gì thay đổi. Anh nhìn chúng lâu hơn, và anh nhận ra: có gì đó… không giống - không phải là khác - là… không cố định.
+
+Một đứa mà anh nhớ đã từng nhỏ hơn… giờ lại lớn hơn một chút. Và cũng ngược lại, một đứa khác… lại không giống như lần trước anh thấy. Không có thứ tự, không có trước sau, nhưng anh nhìn thấy vẫn rất quen. Anh không hiểu! Nhưng anh không vội hỏi. Bởi vì anh đã thấy cô, cô đứng ở đó, không xa, không gần. Như lần đầu vậy. Anh bước tới, không cần suy nghĩ. Và cô nhìn anh, không ngạc nhiên. Chỉ là… biết anh sẽ quay lại.
+
+“Anh đến rồi.” Cô nói. Anh dừng lại trước cô.
+
+“Những đứa kia…” Anh nhìn về phía sau cô. “Là ai?”
+
+Cô không trả lời ngay. Cô nhìn theo ánh mắt của anh, rồi quay lại. “Con của mình đó!”
+
+Anh im lặng. Không phải vì không hiểu. Mà vì câu trả lời đó… không khớp với những gì anh biết. 
+
+“Anh và em…” Anh nói chậm. “Chỉ có một đứa.” Cô gật đầu. 
+
+“Ở thế giới của anh.” Anh không nói tiếp. Cô nhìn anh một lúc, rồi nói nhẹ: “Còn ở đây… không phải chỉ có một khả năng.”
+
+Anh nhìn lại những đứa trẻ. Chúng không thay đổi trước mắt anh. Nhưng cũng không đứng yên theo cách anh quen. “Vì sao… tụi nó không giống nhau mỗi lần anh thấy?”
+
+Cô bước lại gần hơn một chút. “Vì ở đây… không có thời gian.” Cô nói. “Không có trước, không có sau.” “Chỉ là… những gì có thể tồn tại.”
+
+Anh không phản bác. Bởi vì anh đã cảm nhận được điều đó từ trước. Chỉ là lần này — anh nghe nó thành lời. Anh im lặng một lúc. Rồi hỏi:
+
+“Vì sao… anh phải mất lâu như vậy mới quay lại được?” 
+
+Câu hỏi đó không nặng, nhưng không nhẹ. Cô không né tránh: “Vì anh đã bước vào cánh cửa đó.”
+
+Anh không bất ngờ, chỉ nhìn cô: “Và?” Cô không trả lời ngay. Nhưng ánh mắt cô… không còn giống như lúc trước. Không lạnh, không xa, chỉ là… hiểu.
+
+“Những gì trong anh… đã trỗi dậy.” Cô nói. “Những thứ đó… không thuộc về nơi này.” 
+
+Anh không nói gì, nhưng anh hiểu. Không phải vì cô giải thích. Mà vì anh đã từng cảm thấy nó. Cơn giận đó, ý muốn bóp nát đó, sự không kiểm soát đó.
+
+“Vì vậy…” Cô nói tiếp. “Anh không phải bị cản lại.” “Mà là… không thể chạm tới.”
+
+Anh đứng yên, không phản ứng. Không phủ nhận, mà chỉ nhận ra: không phải thế giới này rời xa anh, mà chính anh đã lệch khỏi nó. Anh nhìn cô. Lần này, không hỏi thêm. Bởi vì anh biết — điều cần hiểu… anh đã hiểu rồi.
+
+Cô không nói thêm gì ngay sau đó. Chỉ bước vòng ra phía sau anh. Anh không quay người, hai cánh tay cô vòng qua, ôm lấy anh từ phía sau. Cảm giác quen thuộc đó không mạnh, mềm mại, dịu dàng, đủ để anh biết cô đang ở rất gần. Không giống như lần anh chạm tới cô trong những khoảnh khắc ngắn ngủi trước đây, lần này, sự hiện diện của cô rõ ràng hơn, ổn định hơn, ấm áp hơn.
+
+“Lần này…” cô nói khẽ, giọng nhẹ như đang thì thầm ngay bên tai anh, “anh còn muốn nhìn thấy cánh cửa đó nữa không?”
+
+Anh khựng lại. Không cần suy nghĩ. “Không.” Anh trả lời ngay, không do dự. Câu trả lời đến nhanh hơn cả suy nghĩ của anh, như thể cơ thể anh đã nhớ rõ cảm giác lần trước, cái cảm giác khi đứng trước cánh cửa đó, khi mọi thứ xấu nhất trong anh bị kéo lên, khi anh gần như không còn là chính mình nữa.
+
+Cô không phản ứng ngay. Chỉ ôm anh chặt hơn một chút nhưng vẫn đầy tình cảm. “Lần này…” cô nói, vẫn giữ giọng rất dịu, “em sẽ đi cùng anh.”
+
+Anh không quay lại. Nhưng anh không từ chối nữa. “Ở đó…” cô nói tiếp, “có một người anh cần gặp.”
+
+Anh im lặng, không phải vì không tin. Mà vì anh biết — nếu cô nói vậy, thì đó không phải là lựa chọn. Cô buông tay ra. Nhưng không rời đi.
+
+Anh quay lại nhìn cô: “Là ai?” Cô không trả lời trực tiếp. Chỉ nhìn anh, rồi nói chậm:
+
+“Người đã ở đó… từ lần đầu tiên anh bước qua.” Anh nhíu mày rất nhẹ. 
+
+“Lần đầu…” Một ký ức thoáng qua. Không phải rõ ràng, nhưng đủ để anh nhận ra: không phải lần anh đứng trước cánh cửa đó. Mà là lần đầu tiên anh đi qua thế giới này… để tìm con bé. Chính là người đầu tiên mà anh thấy, chỉ đường anh khi anh bước vào thế giới này. 
+
+“Người đó…” cô nói, “không ngăn anh.” “Chỉ muốn giúp anh tìm thấy điều anh cần phải thấy!” Anh không nói gì, nhưng anh hiểu. Không phải anh không thấy, mà là lúc đó — anh chưa đủ để nhận ra.
+
+“Người đó là ai?” Anh hỏi lại. Cô nhìn anh một lúc. Rồi nói:
+
+“Người ấy là người giữ cánh cửa.” Không gian xung quanh không thay đổi. Nhưng trong anh — có một thứ chững lại.
+
+“Để làm gì?” Cô không trả lời ngay. Nhưng lần này, ánh mắt cô không còn chỉ dịu dàng như trước. Có một sự rõ ràng.
+
+“Để không cho những thứ ở phía bên kia… bước ra.” Anh không hỏi thêm. Bởi vì anh hiểu, không cần phải thấy, không cần phải chứng kiến, anh đã chạm vào một phần của nó rồi.
+
+“Anh không bắt buộc phải đi,” cô nói. “Nhưng nếu anh muốn tiếp tục…” Cô dừng lại một chút. “anh sẽ phải gặp người đó.”
+
+Anh đứng yên. Không trả lời ngay, không phải vì sợ, mà vì lần này — anh biết rất rõ, đây không còn là việc “đi vào” hay “không đi vào” nữa. Mà là… anh có dám đối diện với thứ mình đã thấy trong chính mình hay không.
+
+...
+Anh không từ chối nữa. Không phải vì anh muốn quay lại cánh cửa đó, mà vì anh hiểu nếu cứ đứng ở đây, anh sẽ mãi chỉ chạm tới bề mặt. Anh nhìn cô. Cô không nói gì thêm, chỉ đưa tay ra. Anh nắm lấy. Không gian không thay đổi ngay. Nhưng cảm giác quen thuộc bắt đầu trở lại, lần này không kéo anh đi, mà như mở ra một hướng mà anh đã biết.
+
+Họ bước cùng nhau. Không có con đường rõ ràng, không có điểm bắt đầu hay kết thúc, chỉ là… càng đi, mọi thứ xung quanh càng trở nên nặng hơn.
+
+Không phải vì không gian thay đổi. Mà vì thứ bên dưới nó… bắt đầu hiện rõ. Rồi cánh cửa hiện ra. Vẫn ở đó, không khác, không gần hơn, không xa hơn.
+
+Chỉ là… lần này, anh không đứng một mình. Anh dừng lại, không bước ngay. Những gì anh đã cảm nhận lần trước không biến mất. Chỉ là… không còn chiếm lấy anh như trước. Cô vẫn đứng bên cạnh. 
+
+“Anh không cần phải chống lại,” cô nói nhẹ. “Chỉ cần… không để nó kéo anh đi.” Anh không trả lời, chỉ nhìn cánh cửa rồi đưa tay ra. Anh chạm vào tay nắm, không có lực đẩy, không có sự chống cự. Cánh cửa mở ra, không gian bên trong vẫn như trước - không thể gọi tên, không có hình dạng rõ ràng. Nhưng lần này —
+ anh không lao vào. Anh bước chậm, nhẹ, có ý thức. Và khi anh bước qua, một người đứng sẵn ở đó. Không ở ngay trước mặt, không che cánh cửa. Chỉ… ở đó như thể luôn luôn ở đó.
+
+Anh dừng lại, người đó không tiến tới. Không nói, nhưng ánh mắt — không nhìn anh như một kẻ xa lạ. Và anh cảm nhận được, không phải là lần đầu. Chỉ là lần này… anh nhìn thấy!
+
+“Ông là ai?” Anh hỏi. 
+
+Người đó không trả lời ngay, chỉ nhìn anh rất lâu rồi nói: “Ngươi đã quay lại.” Giọng không nặng, không lạnh. Chỉ là… biết trước. Anh siết tay lại một chút.
+
+“Ông đã ở đây… từ trước?” Người đó không phủ nhận. “Ta luôn ở đây.” Anh không hỏi thêm về cánh cửa. Mà hỏi điều anh biết mình cần hỏi.
+
+“Vì sao… tôi có thể bước vào đây?” Người đó nhìn anh. Lần này, không im lặng lâu. 
+
+“Ngươi đã mở mắt.” Anh khựng lại. Không phải vì không hiểu. Mà vì câu trả lời đó… không phải thứ anh có thể hỏi tiếp theo cách bình thường.
+
+“Không phải ai cũng mở được,” người đó nói. “Và không phải ai mở rồi… còn quay lại được.” Anh không nói gì. Người đó bước gần hơn một chút. Không áp lực, không đe dọa, chỉ là… khoảng cách không còn xa. “Ngươi đã chạm vào thứ mà nhiều kẻ không thể thoát ra.” “Nhưng ngươi… vẫn quay lại.”
+
+Anh nhìn thẳng vào người đó. “Vì tôi còn thứ để quay lại.”
+
+Người đó không phản bác. Chỉ gật đầu rất nhẹ: “Đó là lý do.” Một khoảng lặng ngắn. Rồi người đó nói tiếp:
+
+“Ta không cho ngươi thứ này.” Anh nhíu mày. “Ta chỉ… không lấy nó đi.” Anh đứng yên. Câu trả lời đó — không phải điều anh nghĩ. Nhưng lại… đúng theo cách anh không muốn thừa nhận.
+
+“Ngươi tự mở.” “Và nếu ngươi đi xa hơn…” Người đó dừng lại. “Ta sẽ không giữ ngươi lại, nhưng ngươi phải tự biết giới hạn!” Không phải cảnh báo. Chỉ là một sự thật.
+
+Anh không hỏi thêm. Bởi vì lần này — anh hiểu rõ hơn bất kỳ lần nào trước đó — thứ nguy hiểm nhất không nằm sau cánh cửa, mà là… ở trong chính anh.
+
+Anh không hỏi thêm nữa. Không phải vì đã hết câu hỏi, mà vì anh biết có những thứ nếu hỏi tiếp, câu trả lời cũng không giúp anh đi xa hơn. Nhưng trước khi quay lại, anh vẫn dừng lại một chút.
+
+“Vì sao… lần này tôi không bị cuốn như trước?” Câu hỏi không lớn. Không gấp, nhưng rất rõ.
+
+Người đó nhìn anh, không lâu: “Vì có ta.” Một khoảng dừng rất ngắn. “Và vì người đi cùng ngươi.” Không giải thích thêm.
+
+Chỉ vậy. Anh không hỏi tiếp. Bởi vì anh hiểu. Không phải hoàn toàn, nhưng đủ. Anh quay lại, không cần tìm đường, không cần nghĩ, chỉ là… rời khỏi nơi đó. Cánh cửa không đóng lại sau lưng anh. Nhưng cảm giác của nó… lùi xa. Và rồi anh đứng lại. Ở phía bên kia, cô ở đó. Không hỏi anh đã thấy gì, không cần anh kể lại, chỉ bước tới và ôm anh.
+
+Lần này, không từ phía sau, mà rất gần. Cô tựa đầu lên vai anh, nhẹ như một thói quen đã từng có. Anh không nói gì, chỉ đứng yên. Nhưng trong đầu anh — có một câu hỏi. Anh chưa kịp hỏi thì cô đã nói:
+
+“Em không muốn một người có tâm hồn như anh… phải rơi xuống nơi đó chỉ vì thù hận.” Giọng cô vẫn nhẹ, không trách, không buồn, chỉ là… rõ. Anh khẽ siết tay vòng qua cô một chút. 
+
+“Và anh cũng đã thấy rồi…” Cô nói tiếp. “…thứ đã từng trỗi dậy trong anh.” Anh không phủ nhận, không cần. Cô không nhìn anh, chỉ tựa đầu như vậy. “…phải không?”
+
+Một khoảng lặng. Anh không trả lời thành lời. Nhưng cái siết tay nhẹ đó — đủ để cô biết. Cô không nói thêm, chỉ đứng đó, ở bên anh. Không kéo anh đi xa hơn, không giữ anh lại, chỉ… ở đó.
+
 ------------------------------------------------------------------------------------------------------------------
 ## Lối quay về
 - [Quay về Ruto-World]({{ "/" | relative_url }})
