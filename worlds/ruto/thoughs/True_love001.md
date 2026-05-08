@@ -2,7 +2,7 @@
 layout: story
 title: Suy nghĩ - Tình yêu
 subtitle: True love 001 -  True love 001
-permalink: /worlds/ruto/thoughs/True_love001.md/
+permalink: /worlds/ruto/thoughs/True_love001/
 ---
 ## True love:
 Nếu bạn hỏi True Love là gì, thì bạn có thể sẽ rõ sau khi đọc những dòng sau:
